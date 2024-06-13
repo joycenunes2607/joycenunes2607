@@ -2,9 +2,10 @@
 
 Meu nome é Joyce Nunes De Souza
 
-- Estudo na escola Vereador Euclides Miranda
-  Gosto de jogar volei 🏅, e passar momentos com as pessoas que eu amo  ( minha familia e meu namorado) 💕
-- 
+- Estudo na escola Vereador Euclides Miranda 🏫
+- Gosto de jogar volei 🏅
+- Passar o tempo com  quem eu amo ( minha familia amigos e meu namorado) 💕
+  
 
   ### Você pode entrar em contato comigo 📪
 
