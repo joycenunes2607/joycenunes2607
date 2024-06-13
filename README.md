@@ -1,10 +1,10 @@
-### bem vindo ao meu perfil 💜
+### bem vindo ao meu blog 💜 
 
-Meu nome é Joyce Nunes
+Meu nome é Joyce Nunes De Souza
 
-- Estou estudando na [Alura] (https://www.alura.com.br)
-- Estou me desenvolvendo na linguagem JavaScript
-- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+- Estudo na escola Vereador Euclides Miranda
+  Gosto de jogar volei 🏅, e passar momentos com as pessoas que eu amo  ( minha familia e meu namorado) 💕
+- 
 
   ### Você pode entrar em contato comigo 📪
 
